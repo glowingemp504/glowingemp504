@@ -4,4 +4,4 @@
 - 💞️ I’m looking forward to be a full stack developer
 - 📫 Feel free to contact me at
       glowingemp504@glowingsoft.com
-      furqanalam61@gmail.com
+      glowingemp504@gmail.com
